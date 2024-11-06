@@ -3,7 +3,7 @@
 i made this for the people of the game: PONYTOWN to read this
 so i would highly appreciate that if you play PONYTOWN you read this 
 thank you!! ^_^ (still some other things that don't involve ponytown
-that you can still read if yo really like too) <33
+that you can still read if you really like too) <33
 
 SHE/HER PRONOUNS
 
